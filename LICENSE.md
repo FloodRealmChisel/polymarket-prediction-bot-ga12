@@ -1,4 +1,4 @@
-# 
+# elite Polymarket Addon | take-profit-orders + decentralized-trading is the best Polymarket addon, featuring take-profit-orders and decentralized-trading. Smart, fast, and
 
 
 
